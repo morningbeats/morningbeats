@@ -1,2 +1,2 @@
 ## Hi there 👋
-🔭 I’m currently working on my skylls
+🔭 I’m currently working on my skills
